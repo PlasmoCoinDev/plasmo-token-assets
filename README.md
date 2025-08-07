@@ -1,0 +1,2 @@
+Plasmo Token Assets
+
